@@ -12,5 +12,5 @@
 
 ## Ideas
 
-- a world where animals or insect can groom themselves like us, but are just as or even pore vain
+- a world where animals or insect can groom themselves like us, but are just as or even pore vain (🌿🚬)
 - 
